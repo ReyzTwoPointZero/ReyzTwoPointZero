@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ReyzTwoPointZero
 - 👀 I’m interested in building website and making game applicaton :>
 - 🌱 I’m currently learning basic of java
-- 💞️ I’m looking to collaborate on new friends like mine beggner :>
+- 💞️ I’m looking to collaborate on new friends like mine begginer :>
 - 📫 How to reach me ... you can message me through Messenger. You can serach my name: Reynaldo O. Buscagan jr.
 - 😄 Pronouns: Just call me Rey or kuya if you are younger than me. 
 - ⚡ Fun fact: Calisthenics Athlete
